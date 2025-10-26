@@ -7,3 +7,7 @@
 [Voir la carte médicale UEE 🩺](https://github.com/Popolia/D-UEE-Medical-Corps-Command-Registry-Citizen_Dossier_Cedric_Popolia-/tree/main/UEE_Medical_Card.html)
 
 ![Capture d’écran 2025-10-26 143404](https://github.com/user-attachments/assets/5616e4ef-9541-4091-927a-c213d84c447f)
+
+[ueecitizen](https://popoliacedric.wixsite.com/ueecitizen)
+
+<img width="1024" height="1536" alt="ChatGPT Image 26 oct  2025, 16_33_08" src="https://github.com/user-attachments/assets/a471df42-614d-4d6b-b729-5f44ddf83059" />
